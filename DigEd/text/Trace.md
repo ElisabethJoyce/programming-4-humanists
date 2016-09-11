@@ -3,18 +3,18 @@ DR. TRACE TO THE CORONER
 I cannot tell you, Coroner, the cause
 Of death of Elenor Murray, not until
 My chemical analysis is finished.
-Here is the woman’s heart sealed in this jar,
+Here is the womanâ€™s heart sealed in this jar,
 I Weighed it, weight nine ounces, if she had
 A hemolysis, cannot tell you now
 What caused the hemolysis. Since you say
 She took no castor oil, that you can learn
 From Irma Leese, or any witness, still
 A chemical analysis may show
-The presence of ricin,——- and that she took
+The presence of ricin,â€”â€”- and that she took
 A dose of oil not pure. Her throat betrayed
 Slight inflammation; but in brief, I wait
 My chemical analysis.
-Let’s exclude
+Letâ€™s exclude
 The things we know and narrow down the facts.
 She lay there by the river, death had come
 Some twenty hours before. No stick or stone,
@@ -38,7 +38,7 @@ The vagina and vulvae. Opened up
 The mammals, found no milk. No pregnancy
 Existed, sealed these organs up to test
 For poison later, as we doctors know
-Sometimes a poison’s introduced per vaginam.
+Sometimes a poisonâ€™s introduced per vaginam.
 I sealed the brain up too, shall make a test
 Of blood and serum for urea; death
 Comes suddenly from that, you find no lesion,
@@ -50,9 +50,9 @@ Repeat four times, the solutions mix together,
 Dry in an oven, treat with ether, at last
 The residue put on a slide of glass
 With nitric acid, let it stand awhile,
-Then take your microscope—if there’s urea
-You’ll see the crystals—very beautiful.l
-A cobra’s beautiful, but scarce can kill
+Then take your microscopeâ€”if thereâ€™s urea
+Youâ€™ll see the crystalsâ€”very beautiful.l
+A cobraâ€™s beautiful, but scarce can kill
 As quick as these.
 Likewise I have scaled up
 The stomach, liver, kidneys, spleen, intestines,
@@ -68,7 +68,7 @@ Where the analysis did not disclose
 Strychnia, though they hung a man for giving
 That poison to a fellow.
 To recur
-I'm down to this: Perhaps a hemolysis—
+I'm down to this: Perhaps a hemolysisâ€”
 But what produced it? If I find no ricin
 I turn to streptococcus, deadly snake,
 Or shall I call him tiger? For I think
@@ -77,13 +77,13 @@ ls just a little jungle, filled with tigers,
 Snakes, lions, what you will, with teeth and claws,
 The perfect miniatures of these monstrous foes.
 Sweet words come from the lips and tender hands
-Like Elenor Murray’s, minister, nor know
+Like Elenor Murrayâ€™s, minister, nor know
 The jungle has been roused in throat or lungs;
 And shapes venene begin to crawl and eat
 The ruddy apples of the blood, eject
 Their triple venomous excreta in
 The channels of the body.
-There’s the heart,
+Thereâ€™s the heart,
 Which may be weakened by a streptococcus.
 But if she had a syncope and fell
 She must have bruised her body or her head.
@@ -96,11 +96,11 @@ Perhaps she was held up until she died,
 Then laid there by the river, so no bruise.
 So many theories come to me. But again,
 I say to you, look for a man. Run down
-All clues of Gregory Wenner. He is dead ~—
-Loss of a building drives to suicide—
+All clues of Gregory Wenner. He is dead ~â€”
+Loss of a building drives to suicideâ€”
 The papers say, but still it may be true
 He was with Elenor Murray when she died,
-Pushed her, we’ll say, or struck her in a way
+Pushed her, weâ€™ll say, or struck her in a way
 To leave no mark, a tap upon the heart
 That shocked the muscles more or less obscure
 That bind the auricles and ventricles,
@@ -108,8 +108,8 @@ And killed her. Then he flies away in fear,
 Aghast at what he does, and kills himself.
 Look for a man, I say. It must be true,
 She went so secretly to walk that morning
-To meet a man—why would she walk alone?
-So while you hunt the man, I’ll look for ricin,
+To meet a manâ€”why would she walk alone?
+So while you hunt the man, Iâ€™ll look for ricin,
 And with my chemicals end up the search.
 I never saw a heart more beautiful,
 Just look at it. We doctors all agreed
@@ -122,14 +122,14 @@ But what is truer, somewhere was a man
 For whom it heat!
 When Irma Leese, the Aunt of Elenor Murray,
 Appeared before the coroner she told
-Of Elenor Murray’s visit, of the morning
+Of Elenor Murrayâ€™s visit, of the morning
 She left to walk, was never seen again.
 And brought the coroner some letters sent
 By Elenor from France. What follows now
 Is what the coroner, or the jury heard
-From Irma Leese, from letters drawn ——beside
+From Irma Leese, from letters drawn â€”â€”beside
 The riflle that the death of Elenor Murray
 Sent round the life of Irma Leese, which spread
 To Tokio and touched a man, the son
-Of Irma Leese’s sister, dead Corinne,
+Of Irma Leeseâ€™s sister, dead Corinne,
 The mother of this man in Tokio.
