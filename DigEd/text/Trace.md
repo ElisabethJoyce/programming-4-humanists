@@ -6,7 +6,7 @@ I cannot tell you, Coroner, the cause
 Of death of Elenor Murray, not until  
 My chemical analysis is finished.  
 Here is the woman's heart sealed in this jar,  
-I Weighed it, weight nine ounces, if she had  
+I weighed it, weight nine ounces, if she had  
 A hemolysis, cannot tell you now  
 What caused the hemolysis. Since you say  
 She took no castor oil, that you can learn  
@@ -42,7 +42,7 @@ The vagina and vulvae. Opened up
 The mammals, found no milk. No pregnancy  
 Existed, sealed these organs up to test  
 For poison later, as we doctors know  
-Sometimes a poison'ss introduced *per vaginam*.
+Sometimes a poison's introduced *per vaginam*.
 
 I sealed the brain up too, shall make a test  
 Of blood and serum for urea; death  
@@ -99,7 +99,7 @@ And if she had a syncope, was held up,
 Who held her up? That might have cost her life:  
 To be held up in syncope. You know  
 You lay a person down in syncope,  
-And oftentimes the heart resumes its heat.  
+And oftentimes the heart resumes its beat.  
 Perhaps she was held up until she died,  
 Then laid there by the river, so no bruise.  
 So many theories come to me. But again,  
